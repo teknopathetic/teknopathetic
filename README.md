@@ -3,7 +3,7 @@
 ---
 Heyo, I'm Chrys. I linger around ponytown sometimes, but not that often.
 
-I don't mind C+H, especially with friends, but I only C+H if invited to sit with someone or if you're one of my close Discord friends.
+I don't mind if you C+H me, especially if we're friends, you just got to sit next to me yourself or invite me to C+H; I only automatically sit with close Discord friends.
 
 <img src="shady stamp 1.png"> <img src="chuo street stamp.gif"> <img src="beat comic art stamp.png">
 
