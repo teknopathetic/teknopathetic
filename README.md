@@ -15,6 +15,8 @@ I got two sides; Jet Set Radio OST and the GOODNIGHT HYPNOPOMP (album) by Stomac
 
 <img src="autistic shady stamp 3.png"> <img src="yoyo website icon stamp.png"> <img src="shibuya terminal stamp.gif">
 
+<img src="sophomore slump callithump stamp.png"> <img src="stomach book stamp.png"> <img src="jsrf stamp.png">
+
 I kin Shady from Coroika and Wanderer from Genshin Impact the most. Also I'm puppetkin, I'm a haunted puppet.
 
 I've got C-PTSD and AuDHD. I can struggle a bit with social anxiety and paranoia since I'm an overthinker too, but that's about it. I might have narcissistic traits and borderline traits, but I think it stems from my C-PTSD and not so much from a possible personality disorder.
