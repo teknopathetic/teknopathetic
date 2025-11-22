@@ -11,6 +11,8 @@ I'm an OSDD system, but you can just refer to me as Chrys unless I open up about
 
 I like Coroika, Jet Set Radio, and there's other stuff if you feel like checking my rentries.
 
+I got two sides; Jet Set Radio OST and the GOODNIGHT HYPNOPOMP (album) by Stomach Book. Like if I was music, I'd be JSR/JSRF OST and Stomach Book's discography.
+
 <img src="autistic shady stamp 3.png"> <img src="yoyo website icon stamp.png"> <img src="shibuya terminal stamp.gif">
 
 I kin Shady from Coroika and Wanderer from Genshin Impact the most. Also I'm puppetkin, I'm a haunted puppet.
