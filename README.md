@@ -21,9 +21,9 @@ I kin Shady from Coroika and Wanderer from Genshin Impact the most. Also I'm pup
 
 I've got C-PTSD and AuDHD. I can struggle a bit with social anxiety and paranoia since I'm an overthinker too, but that's about it. I might have narcissistic traits and borderline traits, but I think it stems from my C-PTSD and not so much from a possible personality disorder.
 
-Pls int if you also like Coroika or Jet Set Radio, I might be offtab sometimes tho so whisper to grab my attention.
+Pls int if you also like Coroika, Jet Set Radio, or Psychopomp, I might be offtab sometimes tho so whisper to grab my attention.
 
-Dni if darkship or radqueer, or at least don't talk to me about that stuff if you wanna int cuz it makes me uncomfortable.
+Dni if proship/darkship or radqueer, or at least don't talk to me about that stuff if you wanna int cuz that shit makes me uncomfortable.
 
 I'm sorry in advance if I struggle to interact much, I don't always know what to talk about and I don't like randomly infodumping my interests unless permitted (=,=;)
 
