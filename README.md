@@ -5,6 +5,8 @@ Heyo, I'm Chrys. I linger around ponytown sometimes, but not that often.
 
 I don't mind if you C+H me, especially if we're friends, you just got to sit next to me yourself or invite me to C+H; I only automatically sit with close Discord friends.
 
+Currently looking to make a new strawpage, but for now we're just keeping my co-host's straw up, same with the atabook. I need to touch up my rentries too they might be outdated.
+
 <img src="shady stamp 1.png"> <img src="chuo street stamp.gif"> <img src="beat comic art stamp.png">
 
 I'm the main identity of an OSDD system. You may not always be talking to me, you might be talking to some other alters. We're open to mention who's fronting, sometimes our ponytown skins are a hint (you can't rely solely on our skins so you're better off asking).
