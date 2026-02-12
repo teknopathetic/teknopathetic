@@ -5,7 +5,7 @@ Heyo, I'm Chrys. I linger around ponytown sometimes, but not that often.
 
 I don't mind if you C+H me, especially if we're friends, you just got to sit next to me yourself or invite me to C+H; I only automatically sit with close Discord friends.
 
-Currently looking to make a new strawpage, but for now we're just keeping my co-host's straw up, same with the atabook. I need to touch up my rentries too they might be outdated.
+New strawpage up, nothing updated just yet with my rentries or atabook.
 
 <img src="shady stamp 1.png"> <img src="chuo street stamp.gif"> <img src="beat comic art stamp.png">
 
