@@ -29,7 +29,7 @@ Doubles are welcome, for both fictives and fictionkin. Sourcemates too ^_^
 
 Instead of a DNI, here are my/our stances;
 - Pro-endogenic plurality / Supports all forms of plurality
-- Uninterested in shipcourse (but I just don't like stuff darkshippers like)
+- Uninterested in shipcourse (but darkshipping makes us very uncomfortable)
 - Anti-radqueer
   
 I think the *majority* of my system go by these stances.
