@@ -31,7 +31,7 @@ Main host loves Anamanaguchi, Stomach Book, Hideki Naganuma, Yuta Imai, and some
 <img src="sophomore slump callithump stamp.png"> <img src="stomach book stamp.png"> <img src="jsrf stamp.png"> <img src="goodnight hypnopomp stamp.png">
 
 <p align="center">
-This an OSDD-1b system, C-PTSD is pretty much part of the criteria, we suspect some cluster b traits or symptoms too even if all alters have mixed opinions on whether we have a personality disorder or not
+This an OSDD-1b system, C-PTSD is pretty much part of the criteria, we suspect some cluster b traits or symptoms too even if all alters have different opinions on whether we have a personality disorder or not
 
 Instead of a DNI, here are our stances;
 - Pro-endogenic plurality / Supports all forms of plurality
