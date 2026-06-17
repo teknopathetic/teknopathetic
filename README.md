@@ -16,7 +16,7 @@ Would prefer it if you whisper to interact, as we're frequently ofttab or afk
 <img src="shady stamp 1.png"> <img src="chuo street stamp.gif"> <img src="beat comic art stamp.png">
 
 <p align="center">
-The system is currently interested in a few NILFRUITS songs (Hi Φ Club, Bluffman, For dear life, etc...) and BAKUI's work
+The system is currently interested in a few NILFRUITS songs (Hi Φ Club, Bluffman, For dear life, etc...) and Sakanauosakana
 
 <p align="center">
 Other interests: Coroika/Splatoon, Jet Set Radio, Psychopomp (game), Demon Slayer (+more in ext. rentry)
