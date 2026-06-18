@@ -10,7 +10,7 @@ Chrys (Chrysanthemum) | Main Syshost/Identity | Plays on Ponytown Safe Server #1
 (Colectively call us "13th" please, also other sysmates may be active instead of main host, try not to assume that Chrys is out)
 
 <p align="center">
-[Atabook](https://shibuyapunk.atabook.org) | [Rentry](https://rentry.co/flapcap) | [Strawpage](https://funkydealer.straw.page) | [Stamps](https://rentry.co/penance-cant-absolve-your-sin)
+ <a href="[url](https://shibuyapunk.atabook.org)">Atabook</a> | [Rentry](https://rentry.co/flapcap) | [Strawpage](https://funkydealer.straw.page) | [Stamps](https://rentry.co/penance-cant-absolve-your-sin)
 
 <p align="center">
 Would prefer it if you whisper to interact, as we're frequently ofttab or afk
