@@ -7,7 +7,7 @@
 Chrys (Chrysanthemum) | Main Syshost/Identity | Plays on Ponytown Safe Server #1
 
 <p align="center">
-(Colectively call us "13th" please, also other sysmates may be active instead of main host, try not to assume that Chrys is out)
+(Collectively call us "13th" please, also other sysmates may be active instead of main host, try not to assume that Chrys is out)
 
 <p align="center">
 Would prefer it if you whisper to interact, as we're frequently ofttab or afk
