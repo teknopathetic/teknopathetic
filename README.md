@@ -4,11 +4,13 @@
 
 ---
 
-Chrys (Chrysanthemum) | Main Syshost/Identity | Plays on Ponytown Safe Server #1
+[ Chrys (Chrysanthemum) | Main Syshost/Identity | Plays on Ponytown Safe Server #1 ]
 
 (Collectively call us "13th" please, also other sysmates may be active instead of main host, try not to assume that Chrys is out)
 
 Would prefer it if you whisper to interact, as we're frequently ofttab or afk
+
+[ [Rentry](https://rentry.co/flapcap) | [Pronouns.cc](https://pronouns.cc/@ChrysanthemumCoroika) | [Strawpage](https://funkydealer.straw.page) | [Atabook](https://shibuyapunk.atabook.org) | [Stamps](https://rentry.co/penance-cant-absolve-your-sin) ]
 
 <img src="shady stamp 1.png"> <img src="chuo street stamp.gif"> <img src="beat comic art stamp.png">
  
